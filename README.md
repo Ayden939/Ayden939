@@ -29,5 +29,3 @@ TOP - Currently going through The Odin Project for more experience and projects.
 
 🔗 Let’s Connect!
 📫 Email: aydenwork3@gmail.com
-
-💼 LinkedIn: www.linkedin.com/in/ayden-haslam-44b (Temporarily down for verification)
